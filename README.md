@@ -1,3 +1,2 @@
 - 👋 Hey! I'm Victor.
--  Software developer, Designer, Audio Engineer.
-
+-  Software developer, Cinematographer, Musician 
