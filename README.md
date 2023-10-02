@@ -1,2 +1,2 @@
 - 👋 Hey! I'm Victor.
--  Software developer, Cinematographer, Musician 
+-  I code.
